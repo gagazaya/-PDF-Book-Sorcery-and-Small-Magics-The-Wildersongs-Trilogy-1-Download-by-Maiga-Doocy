@@ -1,1 +1,8 @@
-# -PDF-Book-Sorcery-and-Small-Magics-The-Wildersongs-Trilogy-1-Download-by-Maiga-Doocy
+# [PDF] Book Sorcery and Small Magics (The Wildersongs Trilogy, #1) Download by Maiga Doocy
+
+<p><strong>2 second-ago &mdash; Here Options to Downloading or Read Book of Sorcery and Small Magics (The Wildersongs Trilogy, #1) Download by: Maiga Doocy the PDF online for free on Server Amazon, Reddit, Goodreads.</strong></p>
+<p style="text-align: center;"><strong>GET COPY FILE :</strong></p>
+<p style="text-align: center;"><strong><a href="https://us.ebookarea.xyz/?book=199826249-sorcery-and-small-magics" target="_blank" rel="noopener">📢 : 🔗 Sorcery and Small Magics (The Wildersongs Trilogy, #1)</a>&nbsp;</strong></p>
+<p style="text-align: center;">File format : ePub, PDF, Kindle, AudioBook</p>
+<p><strong>SYNOPSIS :</strong></p>
+<p>Desperate to undo the curse binding them to each other, an impulsive sorcerer and his curmudgeonly rival venture deep into a magical forest in search of a counterspell?only to discover that magic might not be the only thing pulling them together. Leovander Loveage is a master of small magics.He can summon butterflies with a song, or turn someone?s hair pink Download by snapping his fingers. Such minor charms don?t earn him much admiration from other sorcerers (or his father), but anything more elaborate always blows up in his face. Which is why Leo vowed years ago to never again write powerful magic.That is, until a mix-up involving a forbidden spell binds Leo to obey the commands of his longtime nemesis, Sebastian Grimm. Grimm is Leo?s complete opposite?respected, exceptionally talented, and an absolutely insufferable curmudgeon. The only thing they agree on is that getting caught using forbidden magic would mean the end of their careers. They need a counterspell, and fast. But Grimm casts</p>
